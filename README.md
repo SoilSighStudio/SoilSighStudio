@@ -27,7 +27,7 @@
 SoilSighStudio凭借其专业的业务能力和将创意与技术相融合的独特模式，在文化创意领域展现出强大的发展潜力✨，在满足客户需求和为团队成员提供发展机会方面表现出色，未来值得期待🎉。
 
 联系邮箱：tycaigc@qq.com📧
-联系电话：+86 - 16604345598☎️# SoilSighStudio
+联系电话：+86 - 16604345598☎️
 
 ## Soil Sigh Studio 
 SoilSighStudio is located in Weihai Economic and Technological Development Zone, Shandong Province, China. 🇨🇳 It was founded by Zhou Yuchuang and has been deeply engaged in the cultural and creative field for 13 years, with unique positioning and remarkable creativity. 😎 Its business covers multiple areas and has emerged in the industry with professional skills and innovative concepts.✨
